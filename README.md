@@ -1,6 +1,6 @@
 ##  Explanation Video
 
- [Watch Full Explanation](https://your-video-link-here)
+ [Watch Full Explanation](https://drive.google.com/drive/folders/1_-jtJwKOcv7CjdoW2pPtc8PFlmIwcqbU?usp=sharing)
 
 ---
 
